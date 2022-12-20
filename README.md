@@ -1,0 +1,1 @@
+# Political_Cuisine_Task_Yandex_Professional
